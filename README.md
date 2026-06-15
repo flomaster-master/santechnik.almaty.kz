@@ -1,1 +1,0 @@
-# santechnik.almaty.kz
